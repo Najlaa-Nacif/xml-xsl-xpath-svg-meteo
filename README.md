@@ -1,19 +1,6 @@
+![WhatsApp Image 2025-11-18 at 02 18 04](https://github.com/user-attachments/assets/48343730-a783-4a89-a600-fc95657df8a6)
 
-<img width="1920" height="1200" alt="Capture d’écran (52)" src="https://github.com/user-attachments/assets/81081888-431c-47e2-9535-8999898655b9" />
+![WhatsApp Image 2025-11-18 at 02 17 41](https://github.com/user-attachments/assets/92454c94-8146-4cb0-a3ee-cfb704bb4c14)
 
-<img width="1920" height="1200" alt="Capture d’écran (53)" src="https://github.com/user-attachments/assets/2376b367-6f59-4a9b-977f-322d47785e2d" />
-
-<img width="1920" height="1200" alt="Capture d’écran (54)" src="https://github.com/user-attachments/assets/48d1be00-d259-4717-acf0-74e4d2e44448" />
-
-
-
-
-
-
-
-
-
-
-
-
+![WhatsApp Image 2025-11-18 at 02 17 18](https://github.com/user-attachments/assets/c4a9b4c3-d603-46bd-a98f-63da19f37e0d)
 
